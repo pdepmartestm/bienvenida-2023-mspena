@@ -10,7 +10,7 @@ Buenas, me llamo Martín, tengo 22 años, me conocen mejor como Tincho, así que
 - Me gusta mucho leer, es un pasatiempo que tuve de más chico pero que deje sin razón.
 
 No sé me ocurre más que presentar sobre mi vida porque es demasiado aburrida, nada más puedo decir que si tienen ganas de hablar de juegos, literatura o computadoras, 
-puedo estar todo el día con ese tema.
+puedo estar todo el día con esos temas.
 
 Cualquier cosa que necesiten, estoy dispuesto a ayudar 🤝
 
